@@ -8,3 +8,6 @@
 
 💪 Favourite quote: “The more I know, the more I realize I know nothing.”
                       - Socrates
+    I believe it is a good quote to live by because there is always something new to learn.
+    
+    
