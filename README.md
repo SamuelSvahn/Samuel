@@ -10,5 +10,7 @@
                       - Socrates
                       
 💪   I believe it is a good quote to live by because there is always something new to learn.
+
+🔊 Fun fact: On my spare time I sing at weddings.
     
     
